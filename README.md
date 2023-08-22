@@ -1,1 +1,1 @@
-# curoviyxru.github.io
+See [crx.moe](https://crx.moe)
